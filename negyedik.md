@@ -1,1 +1,2 @@
 # negyedi fázis
+qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
